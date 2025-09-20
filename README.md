@@ -13,3 +13,9 @@ CentOS7: https://utpedupe-my.sharepoint.com/:f:/g/personal/c19984_utp_edu_pe/EhX
 X17: https://utpedupe-my.sharepoint.com/:u:/g/personal/c19984_utp_edu_pe/EVDJOLcksx9Ftuj7y15GpwoBER5jrWMqvA12rDDNA1DOhw?e=fnveMJ
 
 
+
+https://utpedupe-my.sharepoint.com/:u:/g/personal/c19984_utp_edu_pe/EVDJOLcksx9Ftuj7y15GpwoBER5jrWMqvA12rDDNA1DOhw?e=KFHzbR
+
+https://utpedupe-my.sharepoint.com/:f:/g/personal/c19984_utp_edu_pe/El9luT48F25Hs75srAAmfgMBpUrS1p5-LWkU0mlabb6cFQ?e=DOvi19
+
+https://utpedupe-my.sharepoint.com/:f:/g/personal/c19984_utp_edu_pe/EkhWoskqgf5JjtJ76Pqoqr0Bxxhw3vM2u7DQqN3D0CTIZA?e=EL8IdZ
